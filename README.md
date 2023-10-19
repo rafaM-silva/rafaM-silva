@@ -1,4 +1,4 @@
-## Olá!! Eu sou a Rafaela Moura. Fique avontade 🩷
+## Olá!! Eu sou a Rafaela Moura. Fique á vontade 🩷
 
 
  👩🏻‍💻 Cursando Desenvolvimento de sistemas na ETEC e o PROA Profissão </br>
